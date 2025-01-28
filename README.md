@@ -1,0 +1,1 @@
+# Veerpal-500224580-Week1Assignment_emerging_dev_technologies
